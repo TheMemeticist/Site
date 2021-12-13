@@ -1,8 +1,7 @@
+# Give ₿ or ☕
+
 ![EpiYeti Metaverse, variant 1](https://miro.medium.com/max/1000/1*jTL8P9RPw24HMhDCOCF9OQ.png)
 
-
-
-# Give ₿ or ☕ To The Epi-Yeti!
 
 ![BTC](https://miro.medium.com/max/700/1*mgW8LEjnbLZWFFCMC2IsHg.png)
 
